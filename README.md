@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...aayushsilwal483@gmaiil.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... CAUSE DEATH IS CERTAIN FOR BORN,AND REBIRTH IS INEVITALBLE FOR DWATH
+- ⚡ Fun fact: ... Cause death is certain for born,and rebirth is inevitable for death
 
 <!---
 04Aayush/04Aayush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
